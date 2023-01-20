@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **BySylex-@outlook.com**
 
-- 📄 Know about my experiences [you can ask!](you can ask!)
+- 📄 Know about my experiences (you can ask!)
 
 - ⚡ Fun fact **When I fail, I hit myself to listen to music instead of quitting rage.**
 
