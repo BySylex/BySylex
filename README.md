@@ -14,7 +14,7 @@
 
 - 👨‍💻 My projects are finished, I will add when I have an active project [BySylex#0001](BySylex#0001)
 
-- 📝 I usually play games, spend time with my friends on Discord, [about:blank](about:blank)
+- 📝 I usually play games, spend time with my friends on Discord,
 
 - 💬 Ask me about **You can ask what I do, what I like, some information about coding languages!**
 
