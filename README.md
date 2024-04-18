@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **You can ask what I do, what I like, some information about coding languages!**
 
-- 📫 How to reach me **BySylex-@outlook.com**
+- 📫 How to reach me **Not possible anymore**
 
 - 📄 Know about my experiences (you can ask!)
 
